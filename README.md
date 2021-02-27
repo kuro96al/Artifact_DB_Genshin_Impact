@@ -1,0 +1,1 @@
+# Artifact_DB_Genshin_Impact
